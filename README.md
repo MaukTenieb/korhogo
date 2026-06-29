@@ -44,8 +44,8 @@ Plus André LeBlanc's gorgeous Bible (I love theology). And Philip K Dick's elab
 William Gaines' EC Comics, The Studio, and the like. 
 Late 1990s? Random workmate put yours truly onto WordSound vibes while, around that time, Ångstrom Records co-funder — in our boring hometown — played some IDM and noise music in his tiny flat. 
 (Dude was this towering bearded guy.) Well. Early 2000s, Joel P Witkin (live interpreting gig, or something), wine, explanations, various drawings.
-
-Info: mauktenieb@gmail.com - all content (c)
 Later, in Budapest-Ithaka, anonymous (and silent) Cigány Ulysses walking down the street during a Meursault episode. 
 Late 2010s, a notorious Magnum member I spent time with called my visual work "... intense and strong". More recently? Fire Beninois and Tsimtsum craziness. 
 Yep.
+
+Info: mauktenieb@gmail.com - all content is (c)
