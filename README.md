@@ -43,7 +43,8 @@ __
 
 Critical Reception:
 
-About https://raw.githubusercontent.com/MaukTenieb/korhogo/main/index.html & https://mauktenieb.github.io/korhogo
+About https://raw.githubusercontent.com/MaukTenieb/korhogo/main/index.html 
+& https://mauktenieb.github.io/korhogo —
 
 Jorge Luis Bored
 "Started counting rooms. Lost interest around forty."
