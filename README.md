@@ -52,20 +52,20 @@ Jorge Luis Bored
 William Burrows
 "Names kept trading symptoms until none of them were original anymore."
 
-Philip Kick Day
-"This thing is everything but true."
-
-Okay Umberto
+Umberto Okay
 "Poor references..."
+
+Philip Day Kick
+"This thing is not untrue."
 
 Roberto Bolognese
 "Searching for searchers."
 
-Clive Marker
-"The monsters complained about the lack of documentation."
-
-Nail Gaymen
+Lina Gamine
 "Every corridor assumed I already camped here."
+
+Clive Parker
+"The monsters complained about the lack of documentation."
 
 Mauk Tenieb
 "Uh?"
