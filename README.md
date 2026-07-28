@@ -23,7 +23,7 @@ Aube
 
 …are all part of The Korhogo Fauna — a SF world 
 
-[Jorge Luis Borges, William S Burroughs, Evald Ilyenkov...]
+(Jorge Luis Borges, William S Burroughs, Evald Ilyenkov...)
 
 And an uncanny crucible-platform for:
 
@@ -41,7 +41,8 @@ Literature (massive diary).
 Notable meetings — Childhood, concert pianist grandmother, door closed, full pieces. Oh, and a lot of comics along the way (Josep María Beà's Taberna Galáctica, John Wagner's Strontium Dog...) Plus André LeBlanc's gorgeous Bible (I love theology). And Philip K Dick's elaborate oddity — of course. William Gaines' EC Comics, The Studio, and the like. Late 1990s? Random workmate put yours truly onto WordSound vibes while, around that time, Ångstrom Records co-funder — in our boring hometown — played some IDM and noise music in his tiny flat. (Dude was this towering bearded guy.) Well. Early 2000s, Joel P Witkin (live interpreting gig, or something), wine, explanations, various drawings. Then started a novel, about a wig-wearing writting dog, with a Spanich finalist of prestigious Nadal prize. Later, in Budapest-Ithaka, anonymous (and silent) Cigány Ulysses walking down the street during a Meursault episode. Late 2010s, a notorious Magnum member I spent time with called my visual work "... intense and strong".  More recently? Fire Beninois and Tsimtsum craziness. Yep.
 __
 
-About https://raw.githubusercontent.com/MaukTenieb/korhogo/main/index.html & https://mauktenieb.github.io/korhogo —
+About https://raw.githubusercontent.com/MaukTenieb/korhogo/main/index.html 
+& https://mauktenieb.github.io/korhogo —
 
 Critical Reception:
 
