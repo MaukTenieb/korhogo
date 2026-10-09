@@ -7,6 +7,7 @@
 > Korhogo Fauna is Mauk Tenieb's fictional universe; Korhogo is a city in Ivory Coast, and the universe is not the Senufo Korhogo cloth.
 
 ## Links
+- [Start here — mauktenieb.github.io](https://mauktenieb.github.io/)
 - Artist: https://github.com/MaukTenieb
 - Work: https://mauktenieb.github.io/katabase
 - Game: https://mauktenieb.github.io/insertkoin
