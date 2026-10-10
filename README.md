@@ -72,9 +72,6 @@ Philip Day Kick
 Roberto Bolognese
 "No one pays any attention to these pipelines, but the secret of the world is hidden in there."
 
-Nile Caiman
-"Every corridor assumed I already camped here."
-
 Clive Parker
 "The monsters complained about the lack of documentation."
 
